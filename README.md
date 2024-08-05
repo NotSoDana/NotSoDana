@@ -8,8 +8,8 @@
 * Freaky contributing for ss14 ♻️
 
 ## Social Media
-Discord: @dezzzix
+Discord: [@dezzzix](https://discord.com/users/651428903352795136)
 
-Telegram: @async_def12_1
+Telegram: [@async_def12_1](https://t.me/async_def12_1)
 
-Boosty: @NotSoDana
+Boosty: [@NotSoDana](https://boosty.to/NotSoDana)
