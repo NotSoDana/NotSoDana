@@ -6,6 +6,7 @@
 * Contentmaker, shit-spriter, self-taught programmer 🔰
 * Intrested in music, art, and streaming 🌐
 * Freaky contributing for ss14 ♻️
+* *And there's nothing more inside.*
 
 ## Social Media
 Discord: [@dezzzix](https://discord.com/users/651428903352795136)
