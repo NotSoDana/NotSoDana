@@ -11,7 +11,7 @@
 ## Social Media
 Discord: 
 
-[![Discord Presence](https://lanyard.cnrad.dev/api/651428903352795136?idleMessage=:wanna%dosing&bg=3E365B)](https://discord.com/users/651428903352795136)
+[![Discord Presence](https://lanyard.cnrad.dev/api/651428903352795136?hideActivity=true&bg=3E365B)](https://discord.com/users/651428903352795136)
 
 Telegram: [@async_def12_1](https://t.me/async_def12_1)
 
