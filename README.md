@@ -4,7 +4,7 @@
 * Nikita Marienov, 17 y.o 💠
 * Starogard-Gdanski, Poland, GMT+2 ⏰
 * Contentmaker, shit-spriter, self-taught programmer 🔰
-* Intrested in music, art, and streaming 🌐
+* Intrested in music, art, and gamedev 🌐
 * Freaky contributing for ss14 ♻️
 * *And I will never fade away.*
 
