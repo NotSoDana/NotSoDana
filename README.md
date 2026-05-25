@@ -6,7 +6,7 @@
 * Contentmaker, shit-spriter, self-taught programmer 🔰
 * Intrested in music, art, and gamedev 🌐
 * Freaky contributing for ss14 ♻️
-* *And I will never fade away.*
+* *See you tomorrow!*
 
 ## Social Media
 Discord: 
